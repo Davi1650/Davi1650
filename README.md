@@ -1,8 +1,1 @@
-- 👋 Hi, I’m Me
-- 👀 I’m interested in Nothing
-- 🌱 I’m currently learning Everything
-- 💞️ I’m looking to collaborate on Ending the world. Hunger.
-- 📫 How to reach me Dox me??
-- 😄 Pronouns: They / them
-- ⚡ Fun fact: I'm going to break the world record for giving my ass, I'm going to break the world record for sucking men, I'm going to break the world record for sucking horses,
-- I suck men and horses, I give my ass to a lot of men, I suck a huge line of men.
+
